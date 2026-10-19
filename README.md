@@ -4,7 +4,7 @@
 `♡ ⲥ + ⲏ ⲉⲛⲥ ♡`
 
 
-![yuna](https://cdn.discordapp.com/attachments/1261677153590841489/1558532024602464346/IMG_5433.jpg?ex=6acbc78e&is=6aca760e&hm=f76838e6cf02f6af25d5bc6f7551c695e1dc3c0110e47ca81abde110675e348d&) [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkhizue2mjcdme3law4vx6om7i&cover_image=true&theme=natemoo-re&show_offline=false&background_color=4f1111&interchange=false&profanity=false&hide_remaster=false&bar_color=b10b0b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+![yuna](https://media.discordapp.net/attachments/1261677153590841489/1561682654993317958/IMG_5620.jpg?ex=6ad73dcf&is=6ad5ec4f&hm=fa9090ee1d4304bc85d147fcda22fc3c480fac239a08c66baca6f62c372bbd25&=&format=webp) [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkhizue2mjcdme3law4vx6om7i&cover_image=true&theme=natemoo-re&show_offline=false&background_color=4f1111&interchange=false&profanity=false&hide_remaster=false&bar_color=b10b0b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 > 𝘉𝘦𝘵𝘵𝘦𝘳 𝘭𝘶𝘤𝘬 𝘯𝘦𝘹𝘵 𝘵𝘪𝘮𝘦.
 
 ♡　♡　♡

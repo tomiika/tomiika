@@ -6,20 +6,18 @@
 
 > <img src="https://readme-typing-svg.demolab.com?font=SansSerifItalic&size=20&duration=3500&pause=1000&color=80654d&center=true&vCenter=true&width=800&lines=Don't+you+talk+about+life+while+you're+still+living+it%3F" alt="Don't you talk about life while you're still living it?" />
 
-<br/>
-<br/>
-<br/>
 
-<img src="https://komarev.com/ghpvc/?username=tomiika&label=%E1%B4%84%CA%9C%E1%B4%9C%E1%B4%85%EA%9C%B1&color=593a25&style=for-the-badge" alt="chuds"/>
 
-<br/>
-<br/>
-<br/>
 
 
 <a href="https://github.com/tomiika">
   <img src="https://img.shields.io/badge/`_♡_c+h_enc_♡_`-1A1A1A?style=for-the-badge&logoColor=C8A2C8" alt="c+h enc"/>
 </a>
+<br/>
+<br/>
+<br/>
+<br/>
+
 
 </div>
 

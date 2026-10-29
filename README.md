@@ -4,7 +4,7 @@
 
 <div align="center">
 
- <img src="https://readme-typing-svg.demolab.com?font=Quicksand&size=20&duration=3500&pause=1000&color=748997&center=true&vCenter=true&width=800&lines=Don't+you+talk+about+life+while+you're+still+living+it%3F" alt="Don't you talk about life while you're still living it?" />
+ <img src="https://readme-typing-svg.demolab.com?font=Poiret+One&size=20&duration=3500&pause=1000&color=748997&center=true&vCenter=true&width=800&lines=Don't+you+talk+about+life+while+you're+still+living+it%3F" alt="Don't you talk about life while you're still living it?" />
 
 <div align="center">
 
